@@ -28,8 +28,6 @@ Currently pursuing my **diploma at Polytechnic Muadzam Shah**, but I strive to *
 🌍 Portfolio: [myracle](https://myracle.top/) (Its a WIP hehe)
 📩 Email: [miracle@myracle.top]  
 
-![MonkeyType Stats](https://raw.githubusercontent.com/myraclebread/myraclebread/main/monkeytype-readme.svg)
-
 💡 *Even though I'm pursuing a diploma, I push myself to master networking, cybersecurity, and cloud computing at the highest level!* 💪🚀  
 
 
