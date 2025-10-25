@@ -21,7 +21,9 @@ Currently pursuing my **diploma at Polytechnic Muadzam Shah**, but I strive to *
 
 ### 🎵 **Fun Facts About Me**  
 🎧 I love listening to **Tame Impala** while coding  
-🎮 Peak Diamond 3 on **Valorant** 
+🎮 Peak Immortal 1 on **Valorant** (Now I'm washed)
+🎮 Also Peak 15k rating on CS2
+
 
 ### 📫 **Let's Connect!**  
 💼 LinkedIn: [LinkedIn](https://www.linkedin.com/in/myraclebread/)
